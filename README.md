@@ -2,11 +2,6 @@
 
 ![HooBank](https://i.ibb.co/BK1Hn0x/Screenshot-2022-08-08-at-4-05-48-PM.png)
 
-### [🌟 Become a top 1% Next.js 13 developer in only one course](https://jsmastery.pro/next13)
-### [🚀 Land your dream programming job in 6 months](https://jsmastery.pro/masterclass)
 
-### Showcase your dev skills with practical experience and land the coding career of your dreams
-💻 JS Mastery Pro - https://jsmastery.pro/youtube
-✅ A special YOUTUBE discount code is automatically applied!
 
-📙 Get the Ultimate Frontend & Backend Development Roadmaps, a Complete JavaScript Cheatsheet, Portfolio Tips, and more - https://www.jsmastery.pro/links
+![HooBank](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqa3ZCYzc3NUtQTEo5STZkYmIyOVBCWnlBaElTQXxBQ3Jtc0trSko0S0VSa3FUWGZyQVJrY0hDNE5ndFIybFlUTElRWHAwWDBER0hVTEFOOXRpZHV3c1lGaDVVOENtU2pMdG1taGtaOUxzeWxPdEdsRmhpeHBLRXBHRGpxZUJaSzQwSFplWXlFNW5LcnFWTFNzTXRmMA&q=https%3A%2F%2Fwww.figma.com%2Ffile%2FbUGIPys15E78w9bs1l4tgS%2FHooBank%3Fnode-id%3D310%253A485&v=_oO4Qi5aVZs)
